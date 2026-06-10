@@ -25,7 +25,7 @@
 
 ## 𝑭𝒐𝒍𝒍𝒐𝒘 𝑴𝒆
 
-| 🎥 [𝑩𝒊𝒍𝒊𝒃𝒊𝒍𝒊](https://space.bilibili.com/474921808) | 📱 [𝑫𝒐𝒖𝒚𝒊𝒏](https://v.douyin.com/i5b33Xfv/) | 📩 [𝑾𝒆𝑪𝒉𝒂𝒕 𝑷𝒖𝒃](https://github.com/ConardLi/easy-dataset/blob/main/public/imgs/weichat.jpg) | 💬 [𝒁𝒉𝒊𝒉𝒖](https://www.zhihu.com/people/wen-ti-chao-ji-duo-de-xiao-qi) | 💻 [𝑱𝒖𝒆𝒋𝒊𝒏](https://juejin.cn/user/3949101466785709) | 🖥️ [𝑮𝒊𝒕𝒉𝒖𝒃](https://github.com/ConardLi) |  
+| 🐦 [X]([https://space.bilibili.com/474921808](https://x.com/GardenConardLi)) | 🎥 [𝑩𝒊𝒍𝒊𝒃𝒊𝒍𝒊](https://space.bilibili.com/474921808) | 📱 [𝑫𝒐𝒖𝒚𝒊𝒏](https://v.douyin.com/i5b33Xfv/) | 📩 [𝑾𝒆𝑪𝒉𝒂𝒕 𝑷𝒖𝒃](https://github.com/ConardLi/easy-dataset/blob/main/public/imgs/weichat.jpg) | 💬 [𝒁𝒉𝒊𝒉𝒖](https://www.zhihu.com/people/wen-ti-chao-ji-duo-de-xiao-qi) | 💻 [𝑱𝒖𝒆𝒋𝒊𝒏](https://juejin.cn/user/3949101466785709) | 🖥️ [𝑮𝒊𝒕𝒉𝒖𝒃](https://github.com/ConardLi) |  
 
 
 
